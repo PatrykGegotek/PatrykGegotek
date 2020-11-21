@@ -1,4 +1,4 @@
-# Hej, zapraszam do [mojej strony!!!](PatrykGegotek.github.io).
+# Hej, zapraszam do [mojej strony!!!](https://patrykgegotek.github.io/).
 
 # A to mój status psychiczny po pierwszym miesiącu studiów: #
 
