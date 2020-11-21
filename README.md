@@ -1,6 +1,4 @@
-# Hej
-
-## To moje pierwsze konto na Githu:b:ie
+# Hej, zapraszam do [mojej strony!!!](PatrykGegotek.github.io).
 
 # A to mój status psychiczny po pierwszym miesiącu studiów: #
 
